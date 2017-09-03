@@ -1,3 +1,3 @@
 Integrantes:
--Luna Padilla Luis Donaldo
--Guzman Gutierrez Jorge Alberto
+-Garcia Diaz Celeste Yarasuary
+-Marco Aurelio Yera Partida
